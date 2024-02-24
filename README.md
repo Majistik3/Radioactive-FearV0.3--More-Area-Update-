@@ -1,2 +1,1 @@
-# Radioactive-FearV0.3 (More Area Update)
- 
+if there are any bugs contact me on discord (Majistik_)
